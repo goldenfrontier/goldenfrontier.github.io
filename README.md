@@ -1,1 +1,0 @@
-# goldenfrontier.github.io
